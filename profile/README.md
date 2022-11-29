@@ -1,3 +1,3 @@
 # vontage.
 ## Our Mission
-Our mission is to let creators connect with their audiance easily and to help level the playing field between big and small creators.
+Our mission is to level the playing field between creators and allow them to connect with their audience easily.
